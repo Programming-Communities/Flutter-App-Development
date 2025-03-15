@@ -25,7 +25,8 @@ Here’s a polished and professional version of your announcement for **Android 
 
 #### **📅 Daily Schedule**
 - **Live Sessions**: Join us daily at **07:00 PM** for interactive learning.  
-- **Recordings**: Missed a session? No worries! All sessions are recorded and available for later viewing.  
+- **Recordings**: Missed a session? No worries! All sessions are recorded and available for later viewing.
+**Video Link:** [Complate PlayList](https://www.youtube.com/live/haqBjxJUJC8?si=I9msbvXxo9LfZqp3) 
 
 ---
 
